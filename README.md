@@ -1,0 +1,2 @@
+# sugenk
+hanya untuk semua
